@@ -1,0 +1,1 @@
+Şuana kadar yapmış olduğum çalışmaların 10. denemesi olan proje
